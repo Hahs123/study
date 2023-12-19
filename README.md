@@ -1,3 +1,3 @@
 # study
 
-https://l.linklyhq.com/l/1v1S2
+https://2ly.link/1vMoW
